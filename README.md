@@ -1,0 +1,1 @@
+# reqemsal-goruntu-tehlili4
